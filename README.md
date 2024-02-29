@@ -1,1 +1,1 @@
-# Curri-culo
+# Currículo
